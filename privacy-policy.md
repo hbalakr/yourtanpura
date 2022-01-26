@@ -1,0 +1,3 @@
+# yourtanpura
+
+Privacy Policy
